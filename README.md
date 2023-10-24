@@ -1,4 +1,4 @@
-### Boas vind o meu perfil.👋
+### Boas vindo ao meu perfil.👋
 
 Meu nome é Eduardo Krauchuk da Silva 🏀
 - Estou aprendendo a programar com a plataforma Alura.⛹️‍♂️

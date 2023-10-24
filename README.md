@@ -12,7 +12,7 @@ eduardo.krauchuk.silva@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/cdgu_rxP5vwAAAAd/cat-hiss.gif)
+![](https://media.tenor.com/bHqH1TzOUoIAAAAM/basketball-nba.gif)
 
 
 <!--

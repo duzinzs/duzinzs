@@ -10,6 +10,8 @@ Meu nome é Eduardo Krauchuk da Silva 🏀
 
 eduardo.krauchuk.silva@escola.pr.gov.br
 
+![](https://media.tenor.com/cdgu_rxP5vwAAAAd/cat-hiss.gif)
+
 
 <!--
 **duzinzs/duzinzs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

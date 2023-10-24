@@ -10,6 +10,8 @@ Meu nome é Eduardo Krauchuk da Silva 🏀
 
 eduardo.krauchuk.silva@escola.pr.gov.br
 
+
+
 ![](https://media.tenor.com/cdgu_rxP5vwAAAAd/cat-hiss.gif)
 
 
